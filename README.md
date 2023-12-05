@@ -1,23 +1,29 @@
-# It all goes back to the Original!
+# Aisle of Horrors
 Keisha Amaranto
 
-## **Horror 2023**
+## **Favorites**
+
 
 **Shows**
 
--*Yellowjackets*
 
--*The Fall of The House of Usher*
-
--*Barry*
 
 **Movies**
 
--*Talk to Me*
+1. *Hereditary*
 
--*Scream VI*
+2. *Scream I*
 
--*Saw X*
+3. *Heathers*
+
+4. *Pearl*
+
+5. *The Silence of The Lambs*
+
+6. 
+
+
+
 
 ### **All Time Horror**
 
@@ -25,8 +31,3 @@ Keisha Amaranto
 
 **Movies**
 
--*The Rocky Horror Picture Show*
-
--*The Texas Chainsaw Massacre*
-
--*The Sixth Sense*
