@@ -1,4 +1,4 @@
-# Aisle of Horrors
+# Welcome to my Brain! I hope you enjoy the antidepressants!
 Keisha Amaranto
 
 ## **Favorites**
@@ -10,30 +10,27 @@ Keisha Amaranto
 
 **Movies**
 
-1. *Hereditary*
+1. *Tangled*
 
-2. *Scream I*
+2. *Everything Everywhere All at Once*
 
-3. *Heathers*
+3. *Barbie*
 
-4. *Pearl*
+4. *Inglorious Basterds*
 
-5. *American Psycho*
+5. *Killers of The Flower Moon*
 
-6. *Jennifer's Body*
+6. *Bottoms*
 
-7. *Saw I*
+7. *Hereditary*
 
-8. *Scream 4*
+8. *12 Angry Men*
 
-9. *Ready or Not*
+9. *Heathers*
 
-10. *Bodies Bodies Bodies*
-
-
+10. *Dog Day Afternoon*
 
 
-### **All Time Horror**
 
 **Shows**
 
