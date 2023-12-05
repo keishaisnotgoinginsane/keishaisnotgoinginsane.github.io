@@ -26,8 +26,28 @@ Keisha Amaranto
 
 10. *Dog Day Afternoon*
 
-**Honorable Mentions:** *Mean Girls*, *Kill Bill*, *Legally Blonde*, *Saving Face*, *May December*, *Black Swan*, *I Tonya*, *Shiva Baby*
+**Honorable Mentions:** *Mean Girls*, *Kill Bill*, *Legally Blonde*, *Saving Face*, *May December*, *Black Swan*, *I Tonya*, *Shiva Baby* *Scott Pilgrim vs The World*
 
 
 
 **Shows**
+
+1. *Succession*
+
+2. *Yellowjackets*
+
+3. *Barry*
+
+4. *Game of Thrones/House of The Dragon*
+
+5. *The Haunting of Bly Manor*
+
+6. *The Boys/Gen V*
+
+7. *Abott Elementary*
+
+8. *Crazy Ex-Girlfriend*
+
+9. *Vinland Saga*
+
+10. *Scott Pilgrim Takes Off*
