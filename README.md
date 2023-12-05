@@ -1,5 +1,5 @@
-# Welcome to my Brain! I hope you enjoy the antidepressants!
-Keisha Amaranto
+# Antidepressants
+Keisha Amaranto (Professional Media Consumer)
 
 ## **Favorites**
 
