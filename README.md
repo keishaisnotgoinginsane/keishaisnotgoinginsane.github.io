@@ -5,6 +5,10 @@ Keisha Amaranto
 
 -Shows
 
+-Yellowjackets
+
+-The Fall of The House of Usher
+
 -Movies
 
 ### **All Time Horror**
