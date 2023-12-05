@@ -3,16 +3,16 @@ Keisha Amaranto
 
 ## **Horror 2023**
 
--Shows
+**Shows**
 
--Yellowjackets
+-*Yellowjackets*
 
 -The Fall of The House of Usher
 
--Movies
+**Movies**
 
 ### **All Time Horror**
 
--Shows
+**Shows**
 
--Movies
+**Movies**
