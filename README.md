@@ -30,7 +30,7 @@ Keisha Amaranto
 
 10. *Dog Day Afternoon*
 
-Honorable Mentions: *Mean Girls*, *Kill Bill*, *Legally Blonde*, *Saving Face*, *May December*, *Black Swan*, *I, Tonya*, *Shiva Baby*
+**Honorable Mentions:** *Mean Girls*, *Kill Bill*, *Legally Blonde*, *Saving Face*, *May December*, *Black Swan*, *I Tonya*, *Shiva Baby*
 
 
 
