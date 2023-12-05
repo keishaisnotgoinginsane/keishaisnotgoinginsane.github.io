@@ -18,9 +18,17 @@ Keisha Amaranto
 
 4. *Pearl*
 
-5. *The Silence of The Lambs*
+5. *American Psycho*
 
-6. 
+6. *Jennifer's Body*
+
+7. *Saw I*
+
+8. *Scream 4*
+
+9. *Ready or Not*
+
+10. *Bodies Bodies Bodies*
 
 
 
