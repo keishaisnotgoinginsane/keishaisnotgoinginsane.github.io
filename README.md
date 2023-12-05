@@ -4,10 +4,6 @@ Keisha Amaranto
 ## **Favorites**
 
 
-**Shows**
-
-
-
 **Movies**
 
 1. *Tangled*
