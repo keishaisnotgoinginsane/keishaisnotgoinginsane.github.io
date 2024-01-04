@@ -26,7 +26,7 @@ Keisha Amaranto (Professional Media Consumer)
 
 10. *Dog Day Afternoon*
 
-**Honorable Mentions:** *Mean Girls*, *Kill Bill*, *Legally Blonde*, *Saving Face*, *May December*, *Black Swan*, *I Tonya*, *Shiva Baby*, *Scott Pilgrim vs The World*
+**Honorable Mentions:** *Mean Girls*, *Kill Bill*, *Legally Blonde*, *May December*, *Black Swan*, *I Tonya*, *Shiva Baby*, *Scott Pilgrim vs The World*
 
 
 
@@ -51,3 +51,5 @@ Keisha Amaranto (Professional Media Consumer)
 9. *Vinland Saga*
 
 10. *Scott Pilgrim Takes Off*
+
+**Honorable Mentions:** *The Fall of the House of Usher*, *Scream Queens*, *Ozark*, *Breaking Bad*, *Better Call Saul*
