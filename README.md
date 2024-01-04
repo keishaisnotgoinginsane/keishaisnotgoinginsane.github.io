@@ -1,6 +1,5 @@
-# Antidepressants
-Keisha Amaranto (Professional Media Consumer)
-
+# Antidepressants!
+By: Keisha Nolastname
 ## **Favorites**
 
 
@@ -53,3 +52,7 @@ Keisha Amaranto (Professional Media Consumer)
 10. *Scott Pilgrim Takes Off*
 
 **Honorable Mentions:** *The Fall of the House of Usher*, *Scream Queens*, *Ozark*, *Breaking Bad*, *Better Call Saul*, *Bojack Horseman*, *ATLA/LOK*
+
+**Albums**
+
+1. 
