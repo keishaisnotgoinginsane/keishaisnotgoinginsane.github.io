@@ -44,7 +44,7 @@ Keisha Amaranto (Professional Media Consumer)
 
 6. *The Boys/Gen V*
 
-7. *Abott Elementary*
+7. *Adventure Time*
 
 8. *Crazy Ex-Girlfriend*
 
@@ -52,4 +52,4 @@ Keisha Amaranto (Professional Media Consumer)
 
 10. *Scott Pilgrim Takes Off*
 
-**Honorable Mentions:** *The Fall of the House of Usher*, *Scream Queens*, *Ozark*, *Breaking Bad*, *Better Call Saul*
+**Honorable Mentions:** *The Fall of the House of Usher*, *Scream Queens*, *Ozark*, *Breaking Bad*, *Better Call Saul*, *Bojack Horseman*, *ATLA/LOK*
